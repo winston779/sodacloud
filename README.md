@@ -1,6 +1,6 @@
 # 苏打云官网地址
 
-最新地址：[sudacloud.top](https://a1.soda03.cc/register?code=Fwu04z4H)
+最新地址：[sudacloud.top](https://a5.soda10.cc/register?code=Fwu04z4H)
 
 ## 苏打云介绍
 
